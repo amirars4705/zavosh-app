@@ -1,1 +1,0 @@
-# zavosh-app
